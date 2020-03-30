@@ -1,1 +1,1 @@
-# katielee9710-gmail.com
+# 부스트코스 실습
